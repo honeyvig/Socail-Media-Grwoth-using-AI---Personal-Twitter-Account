@@ -1,4 +1,4 @@
-# Socail-Media-Grwoth-using-AI---Personal-Twitter-Account
+# Socail-Media-Growth-using-AI---Personal-Twitter-Account
 Highly motivated and experienced Social Media Growth Specialist to organically expand my personal X (formerly Twitter) account's following within the Artificial Intelligence (AI) community, have a strong understanding of the AI industry, exceptional social media skills, and a proven track record of growing social media accounts organically.
 
 Your primary focus will be on:
